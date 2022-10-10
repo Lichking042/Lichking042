@@ -1,0 +1,2 @@
+- Yo im lich king and I make games and are working on a terraria mod called forggotten lore.
+-Thinking about joining a terraria mod team
